@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @kaneli1
+- 👀 I’m interested in Dayz/Gaming
+- 🌱 I’m currently getting ready for high school after summer vac
+- 💞️ I’m looking to collaborate on anything
+- 📫 How to reach me my discord is .kaneli
+- 😄 Pronouns: idc
+- ⚡ Fun 
